@@ -1,8 +1,13 @@
 📣Product name:  [Glyco Control Plus UK](https://supplementcarts.com/glyco-control-plus-uk/)
+
  📣 Rating : ★★★★★ (5.0)
+
 📣 Side effects : No Side Effects
+
 📣Availability: [Online](https://supplementcarts.com/glyco-control-plus-uk/)
+
 📣 Results – in 1-3 months
+
 📣 Where to buy:  [https://supplementcarts.com/glyco-control-plus-uk/](https://supplementcarts.com/glyco-control-plus-uk/)
 
 
